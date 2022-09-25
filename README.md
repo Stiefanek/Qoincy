@@ -1,1 +1,1 @@
-# Qoincy
+thanks to david for the concept
